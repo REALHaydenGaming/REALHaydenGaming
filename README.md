@@ -1,0 +1,4 @@
+- hi i am an coder
+- i build funny chart mod
+- bleeding is funny
+- dinnerbambi = yes

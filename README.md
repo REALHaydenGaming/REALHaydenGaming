@@ -14,7 +14,7 @@ What i can do!
 - Managed to beat against nerol against his stans (major situation, which mainly involed his "friends")
 - Gained major respect on gamejolt.com
 ## DNI (or DO NOT INTERACT)
-- Cyclo (REASON: Sended pornhub link & made an excuse with his guilt tripping & tried harassing me in a discord server)
+- Cyclo (REASON: Sended pornhub link to someone else & made an excuse with his guilt tripping & tried harassing me in a discord server)
 - Knocks (REASON: Not a good history between us, mainly due to me pissing him off)
 - NSFW Users (REASON: Interact with me, and i will kick that account fucking away)
 - GB Mods (REASON: Support's some false bans + sometimes ghost's people)

@@ -11,5 +11,10 @@ What i can do!
 ## Notable achivement's
 - Done charting on lot's of mod's
 - Learned how to do programming in less than 20 days
-- Managed to beat against gio against his stans
+- Managed to beat against nerol against his stans (major situation, which mainly involed his "friends")
 - Gained major respect on gamejolt.com
+## DNI (or DO NOT INTERACT)
+- Cyclo (REASON: Sended pornhub link & made an excuse with his guilt tripping & tried harassing me in a discord server)
+- Knocks (REASON: Not a good history between us, mainly due to me pissing him off)
+- NSFW Users (REASON: Interact with me, and i will kick that account fucking away)
+- GB Mods (REASON: Support's some false bans + sometimes ghost's people)

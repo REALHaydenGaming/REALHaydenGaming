@@ -6,16 +6,8 @@ Welcome here i guess, here is the things i can do:
 ### Social media
 https://haydengaming.carrd.co/
 here
-.
-.
-.
-.
-.
-.
-.
-.
-.
-.
-.
-.
-hi theoyeah, your disscussion's break tos on github LOL!!!!!
+### Fun facts
+* Became the MOST HATED in muitlple stuff (Due to people being a cry baby)
+* Immature as a tiny cock, but smart as fuck
+* based Engine is a source code of every engine he can find
+* Probably gonna and WILL QNA @Mayo78

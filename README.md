@@ -11,3 +11,8 @@ here
 * Immature as a tiny cock, but smart as fuck
 * based Engine is a source code of every engine he can find
 * Probably gonna and WILL QNA @Mayo78
+
+### Favorite quote's for me to say!!!!
+* burn in a fire
+* get a life bozo
+* fatherless :skull:

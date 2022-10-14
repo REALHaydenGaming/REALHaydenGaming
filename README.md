@@ -12,7 +12,12 @@ here
 * based Engine is a source code of every engine he can find
 * Probably gonna and WILL QNA @Mayo78
 
-### Favorite quote's for me to say!!!!
-* burn in a fire
-* get a life bozo
-* fatherless :skull:
+### DO NOTE:
+
+If you see most of my shit private;
+
+It's because
+
+A. I am working on a mod.
+
+B. I don't wanna share what I did.

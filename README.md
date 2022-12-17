@@ -12,3 +12,5 @@
 
 #### dumb social
 haydengaming.carrd.co
+
+goofy roblox (keep in mind I don't accept 99% of friend requests.) (I got it from a 10 yr old whose pin is broken.) https://www.roblox.com/users/1515417898/profile
